@@ -9,11 +9,14 @@
 </p>
 
 <p align="center">
-  MEETING CHRISTIAN BORLE 5.23 IF ANYONE GAF
+  MET CHRISTIAN BORLE 5.23 IF ANYONE GAF
   <p align="center">
-    dni if u still support brandon rogers after the racist shit he did
+<img width="260" height="350" alt="IMG_4466" src="https://github.com/user-attachments/assets/1acc93fe-fbad-4497-8171-98193bb549f1" />
+
+  <p align="center">
+    jimmy urine fans dni bru it isnt that hard
 <p align="center">
-radiostatic makes me uncomfy. nothing you say will get me to change my feelings on the ship. shippers can int i guess but i don't want it discussed around me. thank you ^__^
+radiostatic makes me uncomfy. nothing you say will get me to change my feelings on the ship. shippers can int but i don't want it discussed around me. thank you. i however enjoy past sparksduo ^__^
 
 <p align="center">
-<img width="247" height="164" alt="image" src="https://github.com/user-attachments/assets/1b653736-aad3-4316-ae6e-66bede44fb3f" />
+<img width="260" height="350" alt="BBB8D2D1-6260-42A9-95AE-36EBCD6ACD60" src="https://github.com/user-attachments/assets/ce6515ba-92aa-4a64-b174-8d4902a11f1e" />
