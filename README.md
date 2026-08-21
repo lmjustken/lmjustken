@@ -1,6 +1,6 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=badwithus&color=pink&style=plastic&label=kenlings)
+![](https://komarev.com/ghpvc/?username=badwithus&color=#E0218A&style=plastic&label=kenlings)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
