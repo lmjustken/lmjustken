@@ -11,3 +11,8 @@
 <div align="center"> 
   ♡ <a href="https://cartoonjax.atabook.org" target="_blank">ata</a> | <a href="https://looneyjax.straw.page" target="_blank">straw</a
 
+<div align="center"> 
+
+  <p align="center">
+<img width="633" height="427" alt="image_2026-08-24_004500141" src="https://github.com/user-attachments/assets/2c06d81f-faa7-435c-815a-e7260a35a7a4" />
+
