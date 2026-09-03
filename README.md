@@ -1,6 +1,6 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=lmjustken&color=E0218A&style=plastic&label=kenlings)
+![](https://komarev.com/ghpvc/?username=lmjustken&color=E0218A&style=plastic&label=♡)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -12,7 +12,10 @@
   ♡ <a href="https://cartoonjax.atabook.org" target="_blank">ata</a> | <a href="https://looneyjax.straw.page" target="_blank">straw</a
 
 <div align="center"> 
-
+  ‎     
+    <p align="center">
+           
   <p align="center">
-<img width="380" height="250" alt="image_2026-08-24_004500141" src="https://github.com/user-attachments/assets/2c06d81f-faa7-435c-815a-e7260a35a7a4" />
+<img width="300" height="210" alt="tumblr_74de1e4c2ee94713a07da622f6712776_acb0be4e_540" src="https://github.com/user-attachments/assets/b398a4a3-3731-4e0c-a0ba-6cb53684ee7e" />
+
 
